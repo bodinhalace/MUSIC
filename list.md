@@ -51,6 +51,7 @@ uncategorized EDM mix
 13.  [ Chakk Chakka (1994 Original) ](https://www.youtube.com/watch?v=luDJ5odH6l8)
 14.  [ RMB - Baraka ](https://www.youtube.com/watch?v=R_inSNWPj0s)
 15.  [ Members of Mayday - Mayday Anthem (1992) ](https://www.youtube.com/watch?v=IlWRzOe-uZM)
+16.  [The Beloved - Sweet Harmony ](https://www.youtube.com/watch?v=rB_d1Mczxqw)
 
 
 
