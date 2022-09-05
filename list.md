@@ -5,6 +5,8 @@ CLASSICS ORIG + COVERS
 3.  [Mike Oldfield -  To France ](https://www.youtube.com/watch?v=KrFD02bOJ3g)
 4.  [Nik Kershaw -  The Riddle ](https://www.youtube.com/watch?v=qLlpoiNvE2k)
 5.  [Depeche Mode- Enjoy the Silence ](https://www.youtube.com/watch?v=ojvldIzbaMo)
+6.  [Alizée - Moi... Lolita ](https://www.youtube.com/watch?v=TYcGedAkXio)
+7.  [Righeria - Vamos a la Playa](https://www.youtube.com/watch?v=mvVxcUCSzSU)
 
 
 uncategorized EDM mix
@@ -33,6 +35,8 @@ uncategorized EDM mix
 22.  [ Prestige - Unstable System (Backslash Mix) ](https://www.youtube.com/watch?v=iKttt1oqzsg)
 23.  [Perplexer - Acid Folk (Low Speed) ](https://www.youtube.com/watch?v=C2RhDaPcYmE)
 24.  [ Need To Feel Loved (Adam K & Soha Vocal Mix) ](https://www.youtube.com/watch?v=zXkbi-ddZXM)
+25.  [U.S.U.R.A. -  Infinity (Mathematical Mix) ](https://www.youtube.com/watch?v=xq6r87eA9ag)
+26.  [Jam&Spoon - Right in the Night (Fall in Love with Music) ](https://www.youtube.com/watch?v=Eupc5V8ZhdY)
 
 
 
@@ -62,6 +66,7 @@ uncategorized EDM mix
 21.  [ Zhi Vago - Celebrate (The Love) Single 1996 ](https://www.youtube.com/watch?v=4iu5kXBTGws)
 22.  [Imperio - Atlantis](https://www.youtube.com/watch?v=4sVuM3-W2Nk)
 23.  [SASH - Adelante ](https://www.youtube.com/watch?v=aX_Ip26Y4nQ)
+24.  [Da Hool -  Meet Her At The Loveparade (Radio Edit) ](https://www.youtube.com/watch?v=6_rY0j3grUI)
 
 
 
