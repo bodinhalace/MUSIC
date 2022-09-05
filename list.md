@@ -25,6 +25,7 @@ uncategorized EDM mix
 17.  [Katia Val - Depart](https://www.youtube.com/watch?v=ZfLhnRMnqsY)
 18.  [ Röyksopp - So Easy ](https://www.youtube.com/watch?v=bmatItacEvM)
 19.  [ Party People - Happy Song (DJ Plastiko Remix) ](https://www.youtube.com/watch?v=mJE_MsmFesg)
+20.  [ Pyrate - Bycance ](https://www.youtube.com/watch?v=wAa6dJLatdk)
 
 
 
@@ -33,6 +34,7 @@ uncategorized EDM mix
 1.  [ BINARY FINARY (1999) ](https://www.youtube.com/watch?v=ZJ8FYZSGDcI)  
 2.  [ Stu Allen - Key 103 Dance Mix 1993 (Volleyball Mix) ](https://www.youtube.com/watch?v=Rvy_n4ek3Vw)
 3.  [ SUPER MEZCLADO EUROBEAT VOL 2 ](https://www.youtube.com/watch?v=792lDbatmrY)
+4.  [ Blue Alphabet - Cybertrance ](https://www.youtube.com/watch?v=VdYDP8ii3iQ)
 
 
 
