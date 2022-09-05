@@ -2,6 +2,7 @@ CLASSICS ORIG + COVERS
 --------
 1.  [ Paint it Black - (Italian Version) Caterina Caselli ](https://www.youtube.com/watch?v=ok09KdHzOMg)
 2.  [ The Rolling Stones - Paint It Black (Dance With The Dead Remix) ](https://www.youtube.com/watch?v=DrSqSCIvKK8)
+3.  [Mike Oldfield -  To France ](https://www.youtube.com/watch?v=KrFD02bOJ3g)
 
 
 uncategorized EDM mix
