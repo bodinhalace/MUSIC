@@ -26,6 +26,7 @@ uncategorized EDM mix
 18.  [ Röyksopp - So Easy ](https://www.youtube.com/watch?v=bmatItacEvM)
 19.  [ Party People - Happy Song (DJ Plastiko Remix) ](https://www.youtube.com/watch?v=mJE_MsmFesg)
 20.  [ Pyrate - Bycance ](https://www.youtube.com/watch?v=wAa6dJLatdk)
+21.  [ Tiësto - Traffic (Original Mix) ](https://www.youtube.com/watch?v=DdyRdo4zek8)
 
 
 
