@@ -37,6 +37,7 @@ uncategorized EDM mix
 3.  [ SUPER MEZCLADO EUROBEAT VOL 2 ](https://www.youtube.com/watch?v=792lDbatmrY)
 4.  [ Blue Alphabet - Cybertrance ](https://www.youtube.com/watch?v=VdYDP8ii3iQ)
 5.  [ Space Melody Resurrection (Remix) ](https://www.youtube.com/watch?v=myXVVrvPT1w)
+6.  [ Orb - 100% Vinyl Vol70 - '90's Belgian Afterclub Music - (Trance / Progressive Trance) ](https://www.youtube.com/watch?v=l7yPteDpVMs)
 
 
 
