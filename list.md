@@ -4,6 +4,7 @@ CLASSICS ORIG + COVERS
 2.  [ The Rolling Stones - Paint It Black (Dance With The Dead Remix) ](https://www.youtube.com/watch?v=DrSqSCIvKK8)
 3.  [Mike Oldfield -  To France ](https://www.youtube.com/watch?v=KrFD02bOJ3g)
 4.  [Nik Kershaw -  The Riddle ](https://www.youtube.com/watch?v=qLlpoiNvE2k)
+5.  [Depeche Mode- Enjoy the Silence ](https://www.youtube.com/watch?v=ojvldIzbaMo)
 
 
 uncategorized EDM mix
@@ -31,6 +32,8 @@ uncategorized EDM mix
 21.  [ Tiësto - Traffic (Original Mix) ](https://www.youtube.com/watch?v=DdyRdo4zek8)
 22.  [ Prestige - Unstable System (Backslash Mix) ](https://www.youtube.com/watch?v=iKttt1oqzsg)
 23.  [Perplexer - Acid Folk (Low Speed) ](https://www.youtube.com/watch?v=C2RhDaPcYmE)
+24.  [ Need To Feel Loved (Adam K & Soha Vocal Mix) ](https://www.youtube.com/watch?v=zXkbi-ddZXM)
+
 
 
 
@@ -52,6 +55,13 @@ uncategorized EDM mix
 14.  [ RMB - Baraka ](https://www.youtube.com/watch?v=R_inSNWPj0s)
 15.  [ Members of Mayday - Mayday Anthem (1992) ](https://www.youtube.com/watch?v=IlWRzOe-uZM)
 16.  [The Beloved - Sweet Harmony ](https://www.youtube.com/watch?v=rB_d1Mczxqw)
+17.  [ATB- 9 PM - Till I Come (Radio Edit) ](https://www.youtube.com/watch?v=XK-LlnnQ71I)
+18.  [Robert Miles - One & One ](https://www.youtube.com/watch?v=MHYzEC5PXAQ)
+19.  [Robert Miles - Landscape](https://www.youtube.com/watch?v=gIBDy1Hkvfc)
+20.  [Zhi-Vago - Dreamer (Radio Version)](https://www.youtube.com/watch?v=8kIIjbg9AtU)
+21.  [ Zhi Vago - Celebrate (The Love) Single 1996 ](https://www.youtube.com/watch?v=4iu5kXBTGws)
+22.  [Imperio - Atlantis](https://www.youtube.com/watch?v=4sVuM3-W2Nk)
+23.  [SASH - Adelante ](https://www.youtube.com/watch?v=aX_Ip26Y4nQ)
 
 
 
