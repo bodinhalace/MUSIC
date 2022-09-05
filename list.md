@@ -35,6 +35,7 @@ uncategorized EDM mix
 2.  [ Stu Allen - Key 103 Dance Mix 1993 (Volleyball Mix) ](https://www.youtube.com/watch?v=Rvy_n4ek3Vw)
 3.  [ SUPER MEZCLADO EUROBEAT VOL 2 ](https://www.youtube.com/watch?v=792lDbatmrY)
 4.  [ Blue Alphabet - Cybertrance ](https://www.youtube.com/watch?v=VdYDP8ii3iQ)
+5.  [ Space Melody Resurrection (Remix) ](https://www.youtube.com/watch?v=myXVVrvPT1w)
 
 
 
