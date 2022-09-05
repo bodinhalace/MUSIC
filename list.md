@@ -7,6 +7,9 @@ CLASSICS ORIG + COVERS
 5.  [Depeche Mode- Enjoy the Silence ](https://www.youtube.com/watch?v=ojvldIzbaMo)
 6.  [Alizée - Moi... Lolita ](https://www.youtube.com/watch?v=TYcGedAkXio)
 7.  [Righeria - Vamos a la Playa](https://www.youtube.com/watch?v=mvVxcUCSzSU)
+8.  [ Mike Oldfield - Tubular bells ](https://www.youtube.com/watch?v=sSRJvq4Wd48)
+9.  [Anarchic System PopCorn](https://www.youtube.com/watch?v=cS7OZ3rXjCc)
+
 
 
 uncategorized EDM mix
@@ -37,6 +40,10 @@ uncategorized EDM mix
 24.  [ Need To Feel Loved (Adam K & Soha Vocal Mix) ](https://www.youtube.com/watch?v=zXkbi-ddZXM)
 25.  [U.S.U.R.A. -  Infinity (Mathematical Mix) ](https://www.youtube.com/watch?v=xq6r87eA9ag)
 26.  [Jam&Spoon - Right in the Night (Fall in Love with Music) ](https://www.youtube.com/watch?v=Eupc5V8ZhdY)
+27.  [In-Grid- In-Tango (In-Fisa Edit) ](https://www.youtube.com/watch?v=QIDRlulDUAQ)
+28.  [Panjabi MC - Jogi](https://www.youtube.com/watch?v=Tn7WR0K7p-I)
+29.  [Panjabi MC - Mundian to Bach Ke ](https://www.youtube.com/watch?v=t2CW4yJ6H9Y)
+30.  [Cygnus X- The Orange Theme ](https://www.youtube.com/watch?v=5oXYsEzqd_E)
 
 
 
@@ -67,6 +74,10 @@ uncategorized EDM mix
 22.  [Imperio - Atlantis](https://www.youtube.com/watch?v=4sVuM3-W2Nk)
 23.  [SASH - Adelante ](https://www.youtube.com/watch?v=aX_Ip26Y4nQ)
 24.  [Da Hool -  Meet Her At The Loveparade (Radio Edit) ](https://www.youtube.com/watch?v=6_rY0j3grUI)
+25.  [ Ace of Base - Happy Nation (Official Music Video) ](https://www.youtube.com/watch?v=HWjCStB6k4o)
+26.  [Robert Miles- Princess Of Light ](https://www.youtube.com/watch?v=BoQg-lHFiFY)
+27.  [Robert Miles-Children](https://www.youtube.com/watch?v=BlxunhAXdAo)
+28.  [X-Cabs-Neuro](https://www.youtube.com/watch?v=-IXrRnZwyZ4)
 
 
 
@@ -84,3 +95,5 @@ Italia - DANCE sets+singles
 10.  [ Claudio Diva aka Cladiv Project Live @ Orgasmatron 12 10 2002 ](https://www.youtube.com/watch?v=p_6h4L9-rho)
 11.  [ CLA DIV PROJECT - The Reel (Extended) ](https://www.youtube.com/watch?v=YEv3S8AtNP8)
 12.  [ Cla Div Project - THE REEL FR ("La Cage Mix", vocal by Fiorenzo Vox) ](https://www.youtube.com/watch?v=eBbRtfmteLw)
+13.  [ Molella Feat. The Outhere Brothers - If You Wanna Party ](https://www.youtube.com/watch?v=fDjrBcwg4CQ)
+14.  [ Vecio Dj Presenta "The Best Of Gigi D'ag" Megamix 2018 ](https://www.youtube.com/watch?v=Jd4_hOsG9xs)
