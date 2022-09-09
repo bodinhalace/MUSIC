@@ -99,3 +99,4 @@ Italia - DANCE sets+singles
 14.  [ Vecio Dj Presenta "The Best Of Gigi D'ag" Megamix 2018 ](https://www.youtube.com/watch?v=Jd4_hOsG9xs)
 15.  [ORGASMATRON-DJ TONY-H-RIN Radio Italia Network-15.10.2000](https://www.youtube.com/watch?v=zwkg5HQo6EA)
 16.  [Los Cuarenta 12.2000-Edizione Mixata](https://www.youtube.com/watch?v=inl_Uo4yfKo)
+17.  [Radio Italia Network Masterquick tape 001 Moka DJ & Einstein Dr Dj rip by Zuffa](https://www.youtube.com/watch?v=8bn7ZwOm9Eo)
